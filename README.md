@@ -13,4 +13,13 @@ je pense être en mesure d'apporter un plus à votre structure.
 >**Gestionnaire d'unités commerciales**  
 _Chambre de Commerce et de l'Indutrie_
 
+>**Bachelor Marketing Digital**  
+_institut Supérieur de Commerce de Toulouse_
 
+## Experience professionnelle
+
+
+**2022 à 2023 - _Carrefour express Charles de Fitte_, Toulouse**  
+_Responsable magasin en apprentissage_
+
+**2021 - _Uber eats_**  
